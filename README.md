@@ -1,0 +1,2 @@
+# GARENA-OFFICAL-FREE-FIRE
+Get Free Diamonds up to 10000
